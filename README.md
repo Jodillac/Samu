@@ -1,0 +1,2 @@
+# Samu
+Samu è morto.
